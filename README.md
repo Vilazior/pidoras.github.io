@@ -1,1 +1,1 @@
-# pidoras.github.io
+<a href="konspirologia.zip" download>Весьма неплохо</a>
